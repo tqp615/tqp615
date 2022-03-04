@@ -1,1 +1,1 @@
-This is tqp615 studing fucking coumputer.
+This is tqp615 studying fucking coumputer.
